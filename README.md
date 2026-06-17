@@ -5,6 +5,7 @@
 #### 1.空天院
 1.[空天院福利待遇](https://b23.tv/qQAppDQ)  
 #### 2.声学所
+【夏令营6.30号结束】
 1.[声学所保研经验](https://www.xiaohongshu.com/explore/66fceb7b000000002c02c366?xsec_token=AB6BRUW7v3B7715KrWLY-z2oL38E6FtKggNAXC21-8H5s=&xsec_source=pc_search&source=web_explore_feed)  
 2.[声学所水下航行器方向](https://www.xiaohongshu.com/explore/68821ae500000000130117b2?xsec_token=ABbNBi8-_hp87Y8kIMDX_y_5Vp-uD1AqsCQcYqgmBOi0w=&xsec_source=pc_search&source=web_explore_feed)  
 
@@ -13,6 +14,9 @@
 2.[北航杭高院](https://www.xiaohongshu.com/explore/697e3499000000000a02b296?xsec_token=ABPx43ZlPcaGC6C1QmJMv2VZ9Y984ylbtzANXupmD-Kwo=&xsec_source=pc_search&source=web_explore_feed)  
 #### 4.北理
 1.方向
+
+#### 5.深先院
+【夏令营6.25号截至】：https://www.siat.ac.cn/jyjx/zsxx/dsdw/202508/t20250806_7901275.html
 
 
 
